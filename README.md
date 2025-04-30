@@ -1,3 +1,3 @@
 # Database Course
 
-![download](https://github.com/user-attachments/assets/53f35390-7d0b-449d-a816-d40b46d62fa1)
+![download](https://github.com/user-attachments/assets/2dcef56a-6d36-4f77-ac70-330e80b9ef5b)
